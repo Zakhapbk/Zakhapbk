@@ -1,4 +1,4 @@
-Some projects
+Here are my pet projects
 
 
 
